@@ -1,1 +1,1 @@
-PARTAY ON! DONT PARTY SAFE! ANARCHY!
+Please party responsibly, no glass in the hallways. No drinking games. 
